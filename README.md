@@ -1,6 +1,6 @@
 ## Olá! Sejam bem-vindo ao meu perfil 💙 👋
 
-- Sou a aluna Vitória Santos da Escola Estadual Engº Isac Pereira Garcez;
+- Sou a aluna **Vitória Santos** da Escola Estadual Engº Isac Pereira Garcez;
 - Estou aprendendo programação nas aulas de tecnologia com o melhor Professor Jocimar pelo [Alura](https://www.alura.com.br);
 - Utilizo este espaço para compartilhar alguns dos meus projetos.
 
