@@ -8,4 +8,4 @@ Você pode entrar em contato comigo 📧
 
 00001088070243sp@aluno.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/WzkNhV0yP9kAAAAd/mc-hariel-hariel.gif)
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExam11ZHluZTVsazAxMHg5dG1lemNjcTBiemtxcjc0OWNzanQ5NHdzNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/mCKCRwTVGqjsvcfDAs/giphy.webp)
